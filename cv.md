@@ -76,8 +76,6 @@ December 2021 - July 2022 | Ukraine
 - Management of the Google advertising department
 - Administration of social networks and closing customers with of this source.
 
-![my photo](./images/me.jfif)
-
 ### Contacts
 
 C: [+38 063 17 42 779](tel:+380631742779)
